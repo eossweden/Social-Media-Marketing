@@ -1,5 +1,5 @@
 # Social Media and Marketing
-Here you can see our Social Media Links and "some" of Marketing Materiel for **`swedencornet`** (**ICON Sweden** | **EOSIO**)
+Here you can see our Social Media Links and "some" of Marketing Material for **`swedencornet`** (**ICON Sweden** | **EOSIO**)
 
 # Links / Social Media for **`swedencornet`** (**ICON Sweden** | **EOSIO**)
 
